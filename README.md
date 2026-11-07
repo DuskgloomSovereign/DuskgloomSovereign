@@ -1,5 +1,6 @@
   ## Who DARES to enter MY realm..?
 <img width="960" height="387" alt="Cutscene_special_episode03_024 (1)" src="https://github.com/user-attachments/assets/dc0860c4-1a4d-4d17-8c20-168e31c07ab2" />
+
 Hello puny cookies~ Welcome to the deep abyss...
 
 ## Cookie tier:
