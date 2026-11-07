@@ -15,4 +15,16 @@ Hello puny cookies~ Welcome to the deep abyss...
 
 ## I hate but also love this bastard...
 <img width="2048" height="1152" alt="2026_11_06_0ri_Kleki" src="https://github.com/user-attachments/assets/2a28a802-e35b-4e8d-a7ab-8fae8c6354f7" />
+
+## Not sure about her...
+<img width="2560" height="1440" alt="Untitled1259_20261106221929" src="https://github.com/user-attachments/assets/a32b3661-d60e-4cec-a96d-b9120dbe036a" />
+
+## He's chill..!
+<img width="2560" height="1440" alt="Untitled1259_20261106221936" src="https://github.com/user-attachments/assets/2d156700-b15c-4025-a919-d47e3f91ceaf" />
+
+## She's so kind..!
+<img width="2560" height="1440" alt="Untitled1259_20261106221941" src="https://github.com/user-attachments/assets/1af17914-4474-4ff6-a806-f2f6949489fb" />
+
+## They say he's bad, but...
+<img width="2560" height="1440" alt="Untitled1259_20261106221933" src="https://github.com/user-attachments/assets/905ff3b1-278e-45c5-ad46-ccfb6ff6ac5b" />
 <img width="1000" height="300" alt="tumblr_b5f230b2588f309ed008548441af01b4_34f2b3d4_400" src="https://github.com/user-attachments/assets/2451e0b5-6afe-41ce-a057-6d95eb51c1f0" />
