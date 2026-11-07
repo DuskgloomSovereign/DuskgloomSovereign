@@ -1,6 +1,6 @@
-<img width="1000" height="300" alt="tumblr_4c453d5a13b1f3e791d07525527e7f0a_0ba40f5a_1280 (1)" src="https://github.com/user-attachments/assets/aab2743d-5f8d-4fee-9c51-a6d0f441648d" />
+<img width="1000" height="300" alt="tumblr_4c453d5a13b1f3e791d07525527e7f0a_0ba40f5a_1280 (1)" src="https://github.com/user-attachments/assets/e1b6b768-9590-49d7-93bd-600a7fa474e3" />
 
- ## Who DARES to enter MY realm..?
+## Who DARES to enter MY realm..?
 <img width="960" height="387" alt="Cutscene_special_episode03_024 (1)" src="https://github.com/user-attachments/assets/dc0860c4-1a4d-4d17-8c20-168e31c07ab2" />
 
 Hello puny cookies~ Welcome to the deep abyss...
